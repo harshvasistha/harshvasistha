@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @harshvasistha
-- 👀 I’m interested in ...Podcasting
+- 👋 Hi, I’m @Harsh Unveiled
+- 👀 I’m interested in ...Coding, AI, Machine Learning, Blogging and Podcasting
 - 🌱 I’m currently learning ...Live streaming
 - 💞️ I’m looking to collaborate on ...Crypto Content, Sports content, and Geo-political content for my Podcasts
 - 📫 How to reach me ...harsh.vasistha@gmail.com
